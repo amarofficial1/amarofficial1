@@ -3,7 +3,7 @@
 
 - 🎓 I have completed my graduation in **Bachelor of Computer Applications**
 
-- 🌱 I’m currently doing **Diploma on Blockchain at KBA**
+- 🌱 I’m currently doing **Diploma on Blockchain at Kerala Blockchain Academy**
 
 - 📫 How to reach me **amarofficial1@outlook.com**
 
